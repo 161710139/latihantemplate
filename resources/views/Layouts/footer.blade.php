@@ -1,0 +1,1 @@
+<center><hr>Copyright 2018 @rafyhandiawan</hr></center>
